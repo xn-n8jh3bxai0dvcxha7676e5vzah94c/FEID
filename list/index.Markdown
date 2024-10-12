@@ -2,4 +2,4 @@
 
 | ID         | Information            |
 |------------|------------------------|
-| 1f1.c38.920.1e9.f3c.754.ecf.312.6e7.697.813 | https://trendect.i-i.f5.si  |
+| 466.8a8.0ba.c75.c89.53c.1a0.d37.98d.348.11e | https://trendect.online/index.php  |
